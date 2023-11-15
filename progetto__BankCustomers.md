@@ -1,6 +1,6 @@
 
-![image](https://github.com/bebby18/F2I/assets/44362722/984e485b-82af-4fcc-9fa2-2d5002c72e1a)
-![image](https://github.com/bebby18/F2I/assets/44362722/6420a2e7-e33e-4b9d-a0b8-c4e71984f6a6)
+![Screenshot 2023-11-15 174637](https://github.com/bebby18/F2I/assets/44362722/159c5730-eb1d-47f1-afe2-19dae28f9f5e)
+![Screenshot 2023-11-15 174740](https://github.com/bebby18/F2I/assets/44362722/abab63c8-dda5-42c9-85a3-67d22b8f5a20)
 
 
 
